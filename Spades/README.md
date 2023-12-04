@@ -1,1 +1,1 @@
-Koz Maça (in Turkish) card game 
+Spades (Koz Maça in Turkish) card game 
